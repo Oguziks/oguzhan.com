@@ -1,0 +1,2 @@
+# oguzhan.com
+Kişisel site
